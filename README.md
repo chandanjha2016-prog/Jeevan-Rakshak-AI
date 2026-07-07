@@ -12,3 +12,9 @@
 
 **Made by:** Chandan Kumar | Bihar, India | "Koi na mare"
 **Goal:** Microsoft/Google me join karke isse har phone me pahuchana
+---
+**Signature:** 
+Chandan Kumar  
+Founder - Jeevan Rakshak Mission  
+"Power nahi, Paisa nahi, Sirf Junoon hai - Sabki Raksha Karna"  
+Jai Hind 🇮🇳
